@@ -1,6 +1,6 @@
 Heyyo!
 
-Hi I'm [Francis](https://www.linkedin.com/in/francis-narcis/), a student developer in Malaysia.
+I'm [Francis](https://www.linkedin.com/in/francis-narcis/), a student developer in Malaysia.
 
 I'm a passionate explorer of new things and storytelling, may that be through writing or visuals.
 
